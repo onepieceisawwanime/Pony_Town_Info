@@ -11,3 +11,5 @@ Socialization info: I'm friendly to everyone. I accept C + H from people in the 
 
 Please dont cover me up completely. You can block me a bit, but I'd still like people can see me. 
 Blocking: I don't block people unless, for some reason, I need to. I also might hide you if I'm not able to see the person you're talking to, cause it's just kinda awkward to watch. (Sorry, nothing personal)
+
+For some reason, a lot of times when I look at a OP pony town GitHub, I see a thing that says you dont inc w/ Lawlu shippers. I'm a Lawlu shipper. I'm not sure why this ship is so disliked by Pony Town users, but I only ship it post timeski, NEVER pre. I'm not a pro shipper. Fluff only, ty. If you have an issue with this, you're not required to inc w/ me. ty.
