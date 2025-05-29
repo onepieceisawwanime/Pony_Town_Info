@@ -1,6 +1,6 @@
 # Pony_Town_Info
 Hi, welcome to my GitHub!
-
+✧ ೃ༄*ੈ✩
 ![giphy](https://github.com/user-attachments/assets/c0640721-b750-49e2-a563-c99b5a5be476)
 
 **A bit of info about me and how I play Pony Town**
