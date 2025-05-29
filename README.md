@@ -9,7 +9,9 @@ _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 
 **A bit of info about me and how I play Pony Town**
 
-Fandoms (That I have a COS for): OP, MHA, InuYasha, 
+( All my ponies are linked here, unless the skin I made is new and I forgot, sry :(] )
+
+Fandoms (That I have a COS for): OP, MHA, InuYasha, Omori, BATIM, Genshin, DW, HK, MD, FNAF, MLP, (That's it for no,w but I'll be making more! :>)
 
 ＊*•̩̩͙✩•̩̩͙*˚　　˚*•̩̩͙✩•̩̩͙*˚＊
 
@@ -19,4 +21,4 @@ Blocking: I don't block people unless, for some reason, I need to. I also might 
 
 ₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ
 
-For some reason, a lot of times when I look at a OP pony town GitHub, I see a thing that says you don't w/ Lawlu shippers. I'm a Lawlu shipper. So if you don't like Lawlu shippers and don't want them near you, you dont have to int.
+For some reason, a lot of times when I look at a OP pony town GitHub, I see a thing that says you don't int w/ Lawlu shippers. I'm a Lawlu shipper. So if you don't like Lawlu shippers and don't want them near you, you dont have to int.
